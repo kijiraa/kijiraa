@@ -62,7 +62,7 @@
 
 
 <p align="center">
-  <a href="https://pin.it/4FwL9Uuzd">pinterest</a> 𔘓 <a href="https://www.tiktok.com/@strvbykim?_r=1&_t=ZN-98uARrxsxCY">tt</a>
+  <a href="https://pin.it/4FwL9Uuzd">pinterest</a> 𔘓 <a href="https://www.tiktok.com/@kijiraa?_r=1&_t=ZN-9BTxvBMMMqM">tt</a>
  <img width="20" height="20" alt="1000184296" src="https://github.com/user-attachments/assets/4148e461-178b-4384-b2bb-da805453b76c" /> </p>
 
 
